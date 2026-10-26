@@ -50,4 +50,4 @@ i'm a cybersecurity sudent at NIIT port harcourt,passionate about offensive and 
 
  ## Contact
  -Email: kenmbogu@gmail.com
- -Linkedln:
+ -Linkedln:www.linkedin.com/in/kenneth-mbogu-ab3449443
